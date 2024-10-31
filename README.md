@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Khan-35
+- 👀 I’m interested in teaching with technology.
+- 🌱 I’m currently learning how to use ai teechnologies in educatio
